@@ -9,7 +9,7 @@ Recipe for bread baked in Dutch oven.
 5. Cover with cling film and let the dough chillax in the fridge overnight.
 
 ## Act 2: _Time to wake up, little friend_
->It’s the morning and it’s early. The kids want to watch Bolibompa but Women's Prison isn’t finished yet
+>It’s the morning and it’s early. The kids want to watch Pepa Pig, but the TV is still just showing Seinfelt re-runs
 
 1. Remove the dough from the fridge and place it on a well floured surface. _Fold_ the dough like an envelope multiple times, adding extra flour so the texture becomes firm. The dough should reform after you poke it with a finger. Dust a chopping board with flour and place the dough on it.
 2. Make some coffee. Put the kids in front of Bolibompa. Explain that the bread isn’t ready yet. 
