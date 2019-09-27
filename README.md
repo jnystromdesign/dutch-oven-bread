@@ -1,5 +1,6 @@
 # Dutch oven bread 2.0 - Sourdough 
-Recipe for bread baked in Dutch oven or a cast iron casserole. 
+> Recipe for bread baked in Dutch oven or a cast iron casserole. 
+![Casserole](61RSeP5+hQL._SX466_.jpg)
 
 ## Step 0 - Make Sourdoug starter [2-5 days of feeding]
 1. Mix 2 tbs organic weat flour with 2 tbs luke warm water. Consistency should be something like thick pancacke dough. Leave at a warm place for 24 hours. It should have some bubbles on the surface. It might smell a bit funny. That's ok, cause it will pass.
